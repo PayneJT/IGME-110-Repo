@@ -1,6 +1,6 @@
 # LIST OF MANGA THAT I'VE READ 
 ## (because I can't think of anything else to put in a list)
-1. [One Piece](https://en.wikipedia.org/wiki/One_Piece)
+1. **[One Piece](https://en.wikipedia.org/wiki/One_Piece)** (bolded because it's my favourite)
 3. [Dandadan](https://en.wikipedia.org/wiki/Dandadan)
 4. [Jujutsu Kaisen](https://en.wikipedia.org/wiki/Jujutsu_Kaisen)
 5. [Jojo's Bizarre Adventure](https://en.wikipedia.org/wiki/JoJo%27s_Bizarre_Adventure)
